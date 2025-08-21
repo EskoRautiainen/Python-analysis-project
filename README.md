@@ -1,5 +1,5 @@
-🔍 To view the presentation, download the file "democracy-index-presentation.pptx"
+🔍 Watch it on Youtube: https://youtu.be/xzQBfWWAg_I
 <br>
 **OR**
 <br>
-🔍 Watch it on Youtube here: https://youtu.be/xzQBfWWAg_I
+🔍 Download the file "democracy-index-presentation.pptx"
